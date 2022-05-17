@@ -1,6 +1,6 @@
 - 👋 ola,eu sou @Isabelamali
 - 👀 meu email pra contato como estudante é @isabela.malinoski@escola.pr.gov.br...
-
+- 🤝 me interesso em jogos
 
 
 <!---
